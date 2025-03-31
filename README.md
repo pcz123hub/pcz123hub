@@ -16,7 +16,7 @@ I'm eager to collaborate on projects that involve leveraging technology to solve
 Another area where I'm interested in collaborating is in open - source software development. Contributing to projects that aim to make technology more accessible and user - friendly is something I find very fulfilling. Whether it's improving the user interface of a popular open - source application or adding new features to a software library, I believe that collaboration can lead to great things.
 
 ## 📫 How to Reach Me
-You can reach me via email at pcz123@example.com. I'm also active on LinkedIn, where you can find me at [link to your LinkedIn profile]. I check both my email and LinkedIn regularly, so feel free to reach out if you have any questions, want to discuss potential collaborations, or just want to chat about technology and other interests.
+You can reach me via email at pcz123@example.com. I'm also active on LinkedIn, where you can find me at [3434426338@qq.com]. I check both my email and LinkedIn regularly, so feel free to reach out if you have any questions, want to discuss potential collaborations, or just want to chat about technology and other interests.
 
 ## 😄 Pronouns
 My pronouns are [your pronouns here]. I believe it's important to respect everyone's identity, and being clear about our own pronouns can help create a more inclusive and understanding environment.
